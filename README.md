@@ -4,5 +4,5 @@
 # 一瓶脉动就行哈 交个朋友
 # 邮箱fqymcu994@outlook.com
 # 或者点击链接获取 http://47.102.101.57:8848/buy/19
-![image](https://github.com/user-attachments/assets/4e0aaee6-daef-4f6d-95c7-7760f95e0f38)
 
+![image](https://github.com/user-attachments/assets/43ef3373-8bab-40e3-be74-cabc4d4421c2)
